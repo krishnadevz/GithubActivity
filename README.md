@@ -14,7 +14,7 @@
 
   <br>
  <b>Follow Me On twitter For regular Updates 
-<a href="https://twitter.com/krishnadevz" target_blank="" <b>krishnakakade</b></a>
+<a href="https://twitter.com/krishnadevz">krishnadevz</a>
  <br>
  
  # God Bless Peace 🙏👋Thank you  
